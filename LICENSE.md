@@ -1,4 +1,4 @@
-#  
+#  elite math for brainrots Scripts offers the most advanced math for brainrots Script, with unlimited stamina and auto-heal. Perfect for dominating any
 
 
 
